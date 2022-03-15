@@ -1,1 +1,1 @@
-https://razdayca.github.io/rsschool-cv/cv
+https://razdayca.github.io/rsschool-cv/
